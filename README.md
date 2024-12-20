@@ -8,7 +8,7 @@
 
 💞️ Looking to collaborate on projects involving predictive modeling, dashboard creation, and optimization strategies for real-world business applications.
 
-📫 How to reach me: linkedin.com/in/ramvanapalli
+📫 How to reach me: linkedin.com/in/ramvanapalli, email: swamysitharam.vanapalli@snhu.edu
 
 😄 Fun Fact: When I’m not analyzing data, I express my highs and lows through poetry, weaving emotions into words to find clarity and inspiration.
 
